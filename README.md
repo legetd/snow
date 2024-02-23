@@ -1,1 +1,1 @@
-very clod and slippery
+snow
